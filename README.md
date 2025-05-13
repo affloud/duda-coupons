@@ -1,4 +1,4 @@
-# Duda Free Trial, Coupon Codes and Offers
+# Duda Coupon Codes, Discount Deals & Offer 2025
 
 Duda is a website builder made for people who build websites for others — like agencies, freelancers, and small businesses. It helps users create fast, good-looking websites without writing code. You can manage clients, build sites quickly, and even add your own branding if you're working with a team.
 
