@@ -2,6 +2,10 @@
 
 Duda is a website builder made for people who build websites for others — like agencies, freelancers, and small businesses. It helps users create fast, good-looking websites without writing code. You can manage clients, build sites quickly, and even add your own branding if you're working with a team.
 
+<a href="https://afftrend.com/duda">
+  <img src="https://drive.google.com/uc?export=view&id=1Fdm5myEqBanSWxUGFSWyFGzOxcvpcAsj"  alt="">
+</a>
+
 Over 20,000 agencies and web professionals use Duda to build and manage websites more easily and save time on every project.
 
 If you're thinking about trying Duda, this guide will show you how to get a free trial, use discount codes, and save money on your first plan.
