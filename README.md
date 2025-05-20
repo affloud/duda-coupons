@@ -1,4 +1,4 @@
-# Duda Coupon Codes, Discount Deals & Offer 2025
+# Duda Coupon Codes 2025 (Upto 70% Discount Offers)
 
 Duda is a popular website builder made for people who build websites & landing page — like agencies, freelancers, and small businesses. It helps users create fast, **good-looking websites** without writing a single line of code. You can manage clients, build sites quickly, and even add your own branding if you're working with a team.
 
@@ -22,7 +22,7 @@ What makes Duda different from other site builders is its focus on speed, teamwo
 
 You don’t need to know how to code to use Duda. But if you do, it also supports custom code, so you can go further with design and functionality.
 
-| **Field**                | **Details**                                                                    |
+| **Attribute**                | **Details**                                                                    |
 | ------------------------ | ------------------------------------------------------------------------------ |
 | **Software Name**        | Duda                                                                           |
 | **Official Website**     | [https://www.duda.co](https://www.duda.co)                                   |
