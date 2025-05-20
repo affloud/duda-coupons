@@ -130,7 +130,7 @@ These features make Duda a smart choice for anyone building and managing multipl
 <img src="https://drive.google.com/uc?export=view&id=16GPccgw1mUkqXJFEgnBxrvcdlH8lrHot" alt="Check Detailed Features"> 
 </a>
 
-## Duda Coupon Code
+## Duda Coupon Codes
 
 <a href="https://afftrend.com/duda">
   <img src="https://drive.google.com/uc?export=view&id=1Fdm5myEqBanSWxUGFSWyFGzOxcvpcAsj"  alt="">
