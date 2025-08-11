@@ -10,7 +10,7 @@ Over 20,000 agencies and web professionals use Duda to build and manage websites
 
 If you're thinking about trying Duda, this guide will show you how to get a free trial, use discount codes, and save money on your first plan.
 
-## Duda Overview
+## Duda Highlights 2025
 
 <a href="https://afftrend.com/duda">
   <img src="https://drive.google.com/uc?export=view&id=136vS7hOn3_yYH1tNnD4AbB9UuxN39kOO"  alt="">
